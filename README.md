@@ -1,4 +1,10 @@
 # Resume_Portfolio
+![](https://cdn.mathpix.com/snip/images/cuF_ac29rdbbA8EVeeAORGvAy0JAmr7_4DTdZEBpRgQ.original.fullsize.png)
+
+![](https://cdn.mathpix.com/snip/images/dZ4A3QxgrjVDUriJyuIx3fb35hOKjCLLMkbYhGmkkrk.original.fullsize.png)
+
+![](https://cdn.mathpix.com/snip/images/SA2QeDBef9ypDgiMNZiSdBe5nTico9SFYXjFvza3MCo.original.fullsize.png)
+
 
 ![](https://cdn.mathpix.com/snip/images/SO-5B5n6VQTWV-CuIaydbQZ1EpHggRtSvagyMm3azaM.original.fullsize.png)
 
