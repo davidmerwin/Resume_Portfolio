@@ -14,6 +14,8 @@
 
 ![](https://cdn.mathpix.com/snip/images/mvuLQsGmespFYP8Mrt7oMP0VThwm6jP95WD82jwlpAQ.original.fullsize.png)
 
+![](https://cdn.mathpix.com/snip/images/XvKEGLoX8U69wNCgrtVf64GObRlCXv9wceo5YeWsiGY.original.fullsize.png)
+
 ![](https://cdn.mathpix.com/snip/images/sb70a0ZjOtO16uTMmbUAVFMg9a3dMkgvKcT3DDrX_Lo.original.fullsize.png)
 
 ![](https://cdn.mathpix.com/snip/images/91Phy5LzxZvQvXacDWCVOJc9IlN9dDb8Jvf6ICDAJGA.original.fullsize.png)
